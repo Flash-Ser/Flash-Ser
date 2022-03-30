@@ -40,7 +40,7 @@ You can click the Preview link to take a look at your changes.
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Bomber+Escort&color=F70000&size=30&lines=Killadism+never+ends)](https://github.com/Flash-Ser)
 
-  [![FLASH-SER](https://github.com/Platane/snk/raw/output/github-contribution-grid-snake.svg)](https://bit.ly/2XqQKMU)
+[![FLASH-SER](https://github.com/Platane/snk/raw/output/github-contribution-grid-snake.svg)](https://github.com/Flash-Ser)
 
     
 
