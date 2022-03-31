@@ -1,14 +1,4 @@
 
-
-
-
-
-
-<!---
-Flash-Ser/Flash-Ser is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
-
 <div align="center">
 `${Welcome}`
 
@@ -50,7 +40,7 @@ You can click the Preview link to take a look at your changes.
 
 - 😜 I’m Emmanuel, 16 years old
 
-- 🔭 I’m currently working on [EVA-MWOL](https://github.com/Flash-Ser/Eva-Mwol)
+- 🔭 I’m currently working on Nothing Guys😅
 
 - 🌱 I’m currently learning node js
 
