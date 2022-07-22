@@ -39,7 +39,7 @@ Welcome 🤗
 
     
 
-- 😜 I’m Emmanuel, 16 years old
+- 😜 I’m Emmanuel, 16 years old ♾️
 
 - 🔭 I’m currently working on Nothing Guys😅
 
