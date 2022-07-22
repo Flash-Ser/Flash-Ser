@@ -1,6 +1,7 @@
 
 <div align="center">
-`{Welcome}`
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Bomber+Escort&color=F70808&size=30&lines=Welcome+Guys+Hemme)](https://github.com/Flash-Ser)
+
 
 <p>  
 
@@ -48,7 +49,7 @@
 
 - 💬 Ask me about anything. I don't know anything
 
-- 📫 How to reach me: [Whatsapp group](https://chat.whatsapp.com/G0nR6lf5Jml2GRmyuw4Ej5), [Instagram](https://www.instagram.com/aloneless_is_a_gift), [Whatsapp Pm](http://wa.me/919847162499?text=_*♥️🍎𝙷𝙴𝙻𝙻𝙾+𝙵𝙸𝙰𝚂𝙷+𝚂𝙴𝚁+𝙱𝙸𝙶+𝙵𝙰𝙽+𝙱𝚁𝙾♥️🍎*_)
+- 📫 How to reach me: [Whatsapp group](https://chat.whatsapp.com/G0nR6lf5Jml2GRmyuw4Ej5), [Instagram](https://www.instagram.com/ig.flash__ser), [Whatsapp Pm](http://wa.me/919847162499?text=_*♥️🍎𝙷𝙴𝙻𝙻𝙾+𝙵𝙸𝙰𝚂𝙷+𝚂𝙴𝚁+𝙱𝙸𝙶+𝙵𝙰𝙽+𝙱𝚁𝙾♥️🍎*_)
 
 -->
 
