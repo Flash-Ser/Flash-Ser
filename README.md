@@ -1,6 +1,6 @@
 
 <div align="center">
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Bomber+Escort&color=F70808&size=30&lines=Welcome+Guys+Hemme)](https://github.com/Flash-Ser)
+Welcome 🤗
 
 
 <p>  
