@@ -39,7 +39,7 @@ Welcome 🤗
 
     
 
-- 😜 I’m Emmanuel, 16 years old ♾️
+- 😜 I’m Emmanuel, 18 years old ♾️
 
 - 🔭 I’m currently working on Nothing Guys😅
 
@@ -49,7 +49,7 @@ Welcome 🤗
 
 - 💬 Ask me about anything. I don't know anything
 
-- 📫 How to reach me: [Whatsapp group](https://chat.whatsapp.com/G0nR6lf5Jml2GRmyuw4Ej5), [Instagram](https://www.instagram.com/ig.flash__ser), [Whatsapp Pm](http://wa.me/919847162499?text=_*♥️🍎𝙷𝙴𝙻𝙻𝙾+𝙵𝙸𝙰𝚂𝙷+𝚂𝙴𝚁+𝙱𝙸𝙶+𝙵𝙰𝙽+𝙱𝚁𝙾♥️🍎*_)
+- 📫 How to reach me: [Whatsapp group](https://chat.whatsapp.com/KddBKT0InHeJqjntCkxOKy), [Instagram](https://www.instagram.com/ig.melodious_tunes), [Whatsapp Pm](http://wa.me/918848060663?text=_*♥️🍎𝙷𝙴𝙻𝙻𝙾+𝙵𝙸𝙰𝚂𝙷+𝚂𝙴𝚁+𝙱𝙸𝙶+𝙵𝙰𝙽+𝙱𝚁𝙾♥️🍎*_)
 
 -->
 
