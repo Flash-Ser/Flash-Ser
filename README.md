@@ -32,7 +32,7 @@ Welcome To My Profile 🤗
 
     
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Bomber+Escort&color=F70000&size=30&lines=Killadism+never+ends)](https://github.com/Flash-Ser)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com/?font=Bomber+Escort&color=F70000&size=40&lines=Nice+to+meet+you)](https://github.com/Flash-Ser)
 
 [![FLASH-SER 📛](https://github.com/Platane/snk/raw/output/github-contribution-grid-snake.svg)](https://github.com/Flash-Ser)
 
